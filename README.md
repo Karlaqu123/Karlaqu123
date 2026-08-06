@@ -74,5 +74,5 @@ I am currently focusing on **entry-level Data Analyst opportunities** while cont
 
 ## Connect With Me
 
-- LinkedIn: https://www.linkedin.com/in/YOUR-LINKEDIN
+- www.linkedin.com/in/muñoz-karl-vincent-7b8247394
 - GitHub: https://github.com/Karlaqu123
